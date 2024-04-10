@@ -1,1 +1,1 @@
-# adguard-vpn-mod
+https://invitation.codes/u/rFvsDaBXX/adguard-vpn# adguard-vpn-mod
